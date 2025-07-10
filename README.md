@@ -3,7 +3,7 @@
 星空论坛是一个以日式动画、漫画、游戏、音乐、小说为核心的综合性社区网站，致力于创造日式ACGMN（动画、漫画、游戏、音乐、小说）网站新纪元。该网站为用户提供了一个交流和分享的平台，涵盖了多种热门话题和兴趣领域，包括但不限于ACG文化、生活服务、休闲娱乐等。用户可以在论坛中参与讨论、分享经验、结交志同道合的朋友。此外，星空论坛还通过丰富的版块设置和多样化的活动，营造了一个活跃且富有创意的社区氛围。
 
 <p><strong>一键访问：</strong><a href="https://www.xxsnav.com/sites/15909.html" target="_blank" ><strong>星空论坛最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.xxsnav.com/favorites/dongmanziyuan" target="_blank" ><strong>动漫资源</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://dongmandaohang.sodanav.com" target="_blank" ><strong>动漫网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
